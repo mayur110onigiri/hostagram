@@ -1,7 +1,7 @@
 ## hostagram 2 soon ```??``` ?? 🌸
 ## Hostagram V2
 
-Progress: 50%
+Progress: 55%
 
 ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▱▱▱▱▱▱▱▱▱▱▱▱▱
 
