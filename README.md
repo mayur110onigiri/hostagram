@@ -1,7 +1,7 @@
 ## hostagram 2 soon ```??``` ?? 🌸
 ## Hostagram V2
 # discord | https://discord.gg/nM69ttf5FQ
-Progress: 55%
+Progress: 65%
 
 ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▱▱▱▱▱▱▱▱▱▱▱▱▱
 
