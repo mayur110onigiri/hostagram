@@ -1,11 +1,11 @@
 ## hostagram 2 soon ```??``` ?? 🌸
 ## Hostagram V2
 # discord | https://discord.gg/nM69ttf5FQ
-Progress: 90%
+Progress: 70%
 
 instagram api bug rn 😠 + ban
 
-▰▰▰▰▰▰▰▰▰▰▰▰▰▰▱▱
+▰▰▰▰▰▰▰▰▰▰▰▰▰▰▱▱▱▱▱▱
 
 ## hostagram 1 is Unusable ! 💥
 
